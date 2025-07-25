@@ -6,7 +6,4 @@
 - 🏫 Evitare le assenze strategiche dei compagni di classe: sarete sempre preparati
 - 📚 Alleggerire la mole di lavoro, non riducendosi mai a studiare il giorno prima!
 
-**ti interessa provare CAPS?**
-iscriviti alla *mailing list* per essere sicuro di non perderti l'uscita ufficiale!
-
-*[AVVISAMI ALL'USCITA](https://capsita.it/)*
+**Prova ora CAPS**, disponibile gratuitamente per l'AS 2024/25!
